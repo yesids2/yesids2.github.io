@@ -3,7 +3,8 @@
 **Effective Date:** 2026-05-17   
 **Seller Name:** HUI YIN DU  
 **Contact Email:** support@ooinn.com   
-**Business Address:** No. 80, 2nd Floor, Unit 1, Sheng Yu Second Street, San Sha Village, Henglan Town, Zhongshan City
+**Telephone Numbers:**  (+86)18206060735   
+**Business Address:** No. 80, 2nd Floor, Unit 1, Sheng Yu Second Street, San Sha Village, Henglan Town, Zhongshan City   
 
 ---
 
